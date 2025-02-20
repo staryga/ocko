@@ -1,1 +1,1 @@
- 
+strona ww OCKO ZINE 
